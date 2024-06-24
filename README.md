@@ -1,4 +1,4 @@
-## BOAS VINDAS AO MEU PERFIL｡ ﾟ🌸
+## BOAS VINDAS AO MEU PERFIL｡ ﾟ๋࣭ ⭑⚝
 
 Meu nome é Giovanna, estou estudando na Alura.
 
