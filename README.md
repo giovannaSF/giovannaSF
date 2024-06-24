@@ -6,3 +6,5 @@ Estou me desenvolvendo na linguagem JaVaScript.
 
 `Utilizarei essa plataforma para me organizar meus projetos e o desenvolvimento deles.`
 
+˙✧˖°📷 ༘ ⋆｡˚
+
